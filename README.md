@@ -1,1 +1,1 @@
-I create games. Check out the pinned repositories to see what I'm currently working on.
+I make games. Check out the pinned repositories to see what I'm currently working on.
